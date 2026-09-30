@@ -46,4 +46,4 @@ We may update this policy from time to time. Changes will be posted on this page
 
 ## Contact us
 
-If you have any questions about this Privacy Policy, contact: tideathon@gmail.com
+If you have any questions about this Privacy Policy, contact: saiveerareddy6@gmail.com
